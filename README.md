@@ -12,3 +12,4 @@ Não é facil, mais necessario,e com certeza seu maior aliado para alcançar o s
 Tempo estudando é um tempo ganho,aprender é sinonimo de crescer,quem estuda sempre está em busca de aumentar seus conhecimentos,pois todo dia é dia de aprendermais.
 Há  um dia especial para aqueles que se dedicam com carinho a atividades de carregar livros e cadernos em busca conhecimento.
 Há  um dia especial para aqueles que se dedicam com carinho a atividades de carregar livros e cadernos em busca conhecimento.</p>
+   
